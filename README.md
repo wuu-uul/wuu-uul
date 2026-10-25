@@ -19,4 +19,4 @@ Here are some ideas to get you started:
   
  Happy to collaborate with you!
 
- <img width="1920" height="1080" alt="1" src="https://github.com/user-attachments/assets/e72563bf-bea4-4730-8a77-45efeda36ed6" />
+<img width="960" height="540" alt="3" src="https://github.com/user-attachments/assets/8ab50a1c-6e89-4937-a5ec-ca5ed726b34a" />
