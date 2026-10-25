@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🌱 I’m currently learning cpp,math,Engish,and so on.
+  
+ Happy to collaborate with you!
+
+
+ **I love Sakurakouji Luna(桜小路（さくらこうじ） ルナ) forerver**
+ <img width="1920" height="1080" alt="QQ截图20260627164340" src="https://github.com/user-attachments/assets/af6457eb-b567-4da7-a77f-cc0ab253e1ea" />
+<img width="1920" height="1080" alt="QQ截图20260627164340" src="https://github.com/user-attachments/assets/eb482ed7-03ca-451b-94c4-739624003ee3" />
