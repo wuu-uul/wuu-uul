@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 🌱 I’m currently learning cpp,math,Engish,and so on.
+- I’m currently learning cpp,math,Engish,and so on.
   
  Happy to collaborate with you!
 
